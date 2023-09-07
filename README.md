@@ -1,0 +1,1 @@
+Well, sometimes I have a question: "What makes a college student different from self-taught one?". I think, now, I have a clear answer. Detail. Spending day after day with knowledge, even though your knowledge that you gained comes from your discovery, college is a good habitat for you to learn anything details without any pressure. Thanks my f*** uni!
